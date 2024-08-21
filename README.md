@@ -1,16 +1,15 @@
-## Hi there 👋
+## Hi guys, i love Taehyung 💜
 
-<!--
-**btspavedthewayy/btspavedthewayy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Meu nome é Ana lívia 🖤
 
-Here are some ideas to get you started:
+- Namoro um idol mundialmente conhecido
+- To tendo aula de tecniologia agora
+- Eu amo o bts
+- Bts paved the way!!
+- Provavelmente ta tendo alguma votação, então entre
+em contato comigo para saber se ta tendo, e vá votar!
+(não vale pra pedir foto do meu namorado taehyung 🥱)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+## Contato da diva aqui 💋
+
+namoradadotaehyungoficial@gmail.com
